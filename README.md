@@ -59,6 +59,6 @@ After analyzing the data, the recommended top three cities for new store opening
 Analysis done by-Kurra-Srinivas
 
 For any help,feel free to reach out to me :)
-- **LinkedIn**: [Connect with me professionally](https://www.linkedin.com/in/kurra-srinivas-31727420b/)
+- **LinkedIn**: [Connect with me](https://www.linkedin.com/in/kurra-srinivas-31727420b/)
 - **Instagram**: [Follow me](https://www.instagram.com/_srinivas.kurra/profilecard/?igsh=MWxuNnNpNXc2anhhMg==)
 
